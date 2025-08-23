@@ -28,4 +28,6 @@ If you are interested in exploring everything this darknet marketplace offers, p
 
 
 
-Update:  Tuesday 19 August 2025
+
+
+Update:  Saturday 23 August 2025 Hey everyone, the broken link has been fixed.
