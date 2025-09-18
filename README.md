@@ -34,4 +34,6 @@ If you are interested in exploring everything this darknet marketplace offers, p
 
 
 
-Update:  14.09.2025
+
+
+Update:  Thursday 18 September 2025
